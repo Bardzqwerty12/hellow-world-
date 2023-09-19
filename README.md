@@ -1,2 +1,5 @@
 # hellow-world-
-salamat nalang sa lahat sir 
+
+Hi everyone!
+I'm Angelica Dulay from Sison,Pangasinan
+I love watching KDrama
